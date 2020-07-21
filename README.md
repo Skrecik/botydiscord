@@ -1,1 +1,1 @@
-Bot Dudkasikorskiego!
+Bot SKRECIKA!
